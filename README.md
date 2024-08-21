@@ -6,7 +6,7 @@ Para meus projetos de programação, eu geralmente só envio para o Github quand
 🌱 Atualmente estou aprendendo HTML, CSS, Python e Banco de Dados.
 🔭 No momento estou trabalhando na criação de páginas da web e aprendendo a programar.
 😀 Gosto de ler, ouvir músicas, estudar e ficar sozinha no meu tempo livre.
-💬 Pergunte-me sobre Doramas S2. 
+💬 Pergunte-me sobre Doramas S2. ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 ⚡ Curiosidade: Minha primeira linha de código não foi "Olá, mundo!"
 
 🤩🤩🤩🤩🤩🤩🤩
